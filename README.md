@@ -1,2 +1,2 @@
 CV Conity
-Mon premier cv en ligne
+Mon premier cv en ligne chez Conity
